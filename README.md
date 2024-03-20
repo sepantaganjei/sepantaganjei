@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hey 👋
 
 🎓 Student in Trondheim, Norway. Pursuing Bachelor of Science in Informatics at NTNU.
 
